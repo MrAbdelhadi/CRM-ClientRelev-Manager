@@ -27,5 +27,5 @@ Grâce à un tel programme, les institutions peuvent renforcer leur gouvernance 
 ![Capture d'écran 2025-04-30 201223](https://github.com/user-attachments/assets/bfa84957-63a7-4aa9-a410-0a3a184a2476)
 ![Capture d'écran 2025-04-30 201305](https://github.com/user-attachments/assets/5104d3cf-35ab-4bd9-85cc-9f4a180b82fe)
 ![Capture d'écran 2025-04-30 201353](https://github.com/user-attachments/assets/989b92e4-4734-40c6-992b-95b53dcee48c)
-![Capture d'écran 2025-04-30 201403](https://github.com/user-attachments/assets/4841d5f2-2972-4ea2-bc8e-a572e99af1ac)
+![Capture d'écran 2025-04-30 201403](https://github.com/user-attachments/assets/b3f767bd-b748-4b87-b99c-9d5eb1080db2)
 ![Capture d'écran 2025-04-30 201432](https://github.com/user-attachments/assets/e36c0c9f-af64-4bab-98ff-e376586b1713)
